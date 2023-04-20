@@ -1,2 +1,0 @@
-# veriibilimii
-veriibilimii
